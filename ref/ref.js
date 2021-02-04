@@ -1,0 +1,1 @@
+// https://qiita.com/Gatz/items/55325aaa495a1f62c177
